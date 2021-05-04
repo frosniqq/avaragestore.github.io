@@ -1,1 +1,0 @@
-# avaragestore.github.io
